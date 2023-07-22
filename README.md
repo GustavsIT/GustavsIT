@@ -11,7 +11,7 @@
 <p>Becoming a programmer was a natural choice for me as I've always loved solving problems and being innovative. The ever-changing landscape of the IT industry excites me, and I see countless opportunities to grow and build my future in this dynamic field.</p>
 
 🔍 GLIMPSE INTO MY PASSIONS 🔍
-<p>Beyond coding, I have diverse interests. I enjoy the adrenaline rush of fast and drifting cars, indulging in gaming adventures, and being active in sports like floorball and going to the gym. When I'm winding down, I like watching movies or sports, listening to music, and spending some time with friends.</p>
+<p>Beyond coding, I have diverse interests. I enjoy the adrenaline rush of fast and drift cars, indulging in gaming adventures with different online games, such as, Clash of Clans, Overwatch 2, NHL23, FIFA23, being active in sports like floorball and going to the gym. When I'm winding down, I enjoy also watching movies, especially, documentaries, comedies and horror, or sports.</p>
 
 📫 How to reach me **gustavs.petris98@gmail.com**
 
